@@ -1,3 +1,4 @@
+Collection of images from various past projects
 
 ![alt text](https://github.com/DimTrigkakis/Misc/blob/master/17362638_10208720484710549_2887980540772712428_n.jpg)
 ![alt text](https://github.com/DimTrigkakis/Misc/blob/master/17492520_10208749897205843_6687795333345040806_o.jpg)
